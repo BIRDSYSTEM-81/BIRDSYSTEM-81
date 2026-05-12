@@ -35,7 +35,7 @@ I like alot of stuff, but mainly _Marvel, F1, Birds, Movies and Minecraft._
 
 
 - **Current Projects I'm 𝘱𝘳𝘰𝘣𝘢𝘣𝘭𝘺 working on:**
-  - Learning/Making HTML 
+  - Learning/Making HTML for futrue personal website
   - PonyTown Regiment (currently in progress)
   - Digital Art Commisions (soon) 
 
