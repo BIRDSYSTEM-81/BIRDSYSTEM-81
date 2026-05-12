@@ -13,9 +13,11 @@ $${\color{orange}OP81}$$
 
 <h2> 𝗔𝗯𝗼𝘂𝘁 </h2>
 
+> pssst check out my FA14 and OP81 strawpages.. also sign ATA
+
  Digital + Traditional Artist and writer, might post some on my [Tumblr](https://www.tumblr.com/raneestarx?source=share) if i'm proud if it.
  
-I like alot of stuff, but mainly _Marvel, F1, Birds, Movies and Minecraft._
+I like alot of stuff, but mainly _Marvel/MCU, F1, Birds, Movies and Minecraft._
 
 <br> <img width="350" height="27" alt="image" src="https://github.com/user-attachments/assets/4bda4f28-8523-46fb-b54e-62d3e026016e" /> <br>
 
