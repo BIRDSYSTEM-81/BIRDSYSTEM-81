@@ -13,7 +13,7 @@ $${\color{orange}OP81}$$
 
 <h2> 𝗔𝗯𝗼𝘂𝘁 </h2>
 
-> pssst check out my FA14 and OP81 strawpages.. also sign ATA
+> pssst check out my strawpages.. also sign ATA maybe
 
  Digital + Traditional Artist and writer, might post some on my [Tumblr](https://www.tumblr.com/raneestarx?source=share) if i'm proud if it.
  
@@ -37,9 +37,10 @@ I like alot of stuff, but mainly _Marvel/MCU, F1, Birds, Movies and Minecraft._
 
 
 - **Current Projects I'm 𝘱𝘳𝘰𝘣𝘢𝘣𝘭𝘺 working on:**
-  - Learning/Making HTML for futrue personal website
+  - Learning HTML for futrue personal website
   - PonyTown Regiment (currently in progress)
-  - Digital Art Commisions (soon) 
+  - Digital Art Commisions (soon)
+  - Comic Art series (not yet grrrr)
 
 
 
