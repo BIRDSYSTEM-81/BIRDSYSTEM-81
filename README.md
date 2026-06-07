@@ -8,16 +8,18 @@ $${\color{orange}OP81}$$
 <p align="center">Rani / Soy / Oscar / Crane <br>
 𝘚𝘩𝘦 𝘢𝘯𝘥 𝘏𝘦𝘳 preffered , , <br>
   Any or All pronouns are A-OK! <br>
-  𝙂𝙚𝙣𝙙𝙚𝙧𝙛𝙡𝙪𝙞𝙙 & 𝘈𝘳𝘰𝘈𝘤𝘦
+  
 </p> <br>
 
 <h2> 𝗔𝗯𝗼𝘂𝘁 </h2>
 
-> pssst check out my strawpages.. also sign ATA maybe
+> pssst check out my strawpages.. also sign ATA, I will answer when i can!
 
- Digital + Traditional Artist and writer, might post some on my [Tumblr](https://www.tumblr.com/raneestarx?source=share) if i'm proud if it.
+**Genderfluid - Pangender** & _Aroace - QueerPlatonic !!_
+
+ Self taught Digital + Traditional Artist and writer, might post some on my [Tumblr](https://www.tumblr.com/raneestarx?source=share) if i'm proud if it.
  
-I like alot of stuff, but mainly _Marvel/MCU, F1, Birds, Movies and Minecraft._
+ I like alot of stuff, but mainly _Marvel/MCU, F1, Birds, Movies + Series and Minecraft._
 
 <br> <img width="350" height="27" alt="image" src="https://github.com/user-attachments/assets/4bda4f28-8523-46fb-b54e-62d3e026016e" /> <br>
 
@@ -25,12 +27,18 @@ I like alot of stuff, but mainly _Marvel/MCU, F1, Birds, Movies and Minecraft._
   - I feel meternal *(platonic)* about very specific characters/people if i got to know alot about them.
   - Can be childish sometimes,, *itches head*
   - Will speak out unecessary facts about birds or other animals.
+  - very slow, very forgetful, and cannot prosess things quickly _(sorry in advance)_
+  - My spelling is quite bad so ignore pls
   - Brain rotted *(i need less screen time </3)*
+  - Geniuenly anyone nice i meet is considered my friend from time on cuz i know everyone is cool.
 
 - **DNI**
-  - Pro shippers
+  - Basic dni stuff
+  - Proshippers
   - Meanies
-  - Any contrevosial fandoms _(can be disscussed)_
+  - Gen AI >:(
+  - Supporters/fans of contrevosial celebs _(I do NOT cater this at all)_
+  - Any contrevosial fandoms _(can be disscussed if you'd like!)_
 
 
  <br> <img width="350" height="27" alt="image" src="https://github.com/user-attachments/assets/4bda4f28-8523-46fb-b54e-62d3e026016e" /> <br> 
