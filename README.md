@@ -28,7 +28,7 @@ $${\color{orange}OP81}$$
   - Can be childish sometimes,, *itches head*
   - Will speak out unecessary facts about birds or other animals.
   - very slow, very forgetful, and cannot prosess things quickly _(sorry in advance)_
-  - My spelling is quite bad so ignore pls
+  - My spelling is bad bad because this language sucks and I regret learning it /light hearted maybe
   - Brain rotted *(i need less screen time </3)*
   - Geniuenly anyone nice i meet is considered my friend from time on cuz i know everyone is cool.
 
