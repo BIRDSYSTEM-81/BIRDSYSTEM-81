@@ -11,7 +11,7 @@
 <img src="https://file.garden/ajx045YOCGVBxMLP/47869274_OpjxBGYTUumnBiu.png" class="fr-fic fr-dii" width="40" >
 <img src="https://file.garden/ajx045YOCGVBxMLP/89229066_OFzykBPynWqPcf0.png" class="fr-fic fr-dii" width="40" > <br>
 
-<p align="center"><span style="font-weight: bold; font-size: 18px;"> Check me out! >>> </span> <a href="https://artfight.net/~ranee4stra"><i style="font-size: 18px;">Artfight</i></a> - <a href="https://www.tumblr.com/raneestarx"><i style="font-size: 18px;">Tumblr</i></a><br><br><em style="font-weight: 200;">!! IWC !!<br>Please don&#39;t Add me anywhere unless I know you or I say so.</em><br><em>I like F1, Marvel/MCU, PHM, IronLung, making OCs, and meeting others with similar interests<br> Sometimes at docks with friends!</em><br><br>
+<p align="center"><span style="font-weight: bold; font-size: 18px;"> Check me out! >>> </span> <a href="https://artfight.net/~ranee4stra"><i style="font-size: 18px;">Artfight</i></a> - <a href="https://www.tumblr.com/raneestarx"><i style="font-size: 18px;">Tumblr</i></a><br><br><em style="font-weight: 200;">!! IWC !!<br>Please don&#39;t Add me anywhere unless I know you or I say so.</em><br><em>I like F1, Marvel/MCU, PHM, IronLung, making OCs, and meeting others with similar interests<br> Sometimes at docks with friends!</em><br> I am super ultra nice fr and do not mind listening to/reading yaps (i myself don't really talk/reply that much) <br> Feel free to check out my pages and cool fellow birds in my following list anytime <3 <br> <br>
 
 <img src="https://file.garden/ajx045YOCGVBxMLP/stamp%20(1).png" class="fr-fic fr-dii" width="150">
 <img src="https://file.garden/ajx045YOCGVBxMLP/stamp%20(2).png" class="fr-fic fr-dii" width="150">
